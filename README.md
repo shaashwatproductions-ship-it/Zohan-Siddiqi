@@ -1,6 +1,6 @@
 # Zohan Siddiqi
 ### 🎬 Actor | Assistant Director | Cinematographer
-Zohan Siddiqi is an actor, born in the village of Dhundrai in Maharashtra’s Beed district. Now based in Mumbai, he has built a diverse career across acting, direction, and cinematography. Know more about Zohan Siddiqi, please click IMDB link.
+Zohan Siddiqi is an actor, born in the village of Dhundrai in Maharashtra’s Beed district. Now based in Mumbai, he has built a diverse career across acting, direction, and cinematography. Know about Zohan Siddiqi's filmography, please click IMDB link.
 ---
 ## 🎭 Acting Credits
 * **Movies/OTT:** *Mujahid* (Second Lead), *Metro In Dino*, *Pappi Tai Cha Dabba*.
