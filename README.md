@@ -1,1 +1,14 @@
-Zohan Siddiqui is an Indian actor, born in the village of Dhundrai in Maharashtra’s Beed district. After completing his graduation, he moved to Mumbai to pursue a career in acting. He began his industry journey in the casting department with Netflix’s "Sacred Games", later working as an Assistant Director on projects such as "Nimki Mukhiya," "Class of 2020," and "Bachchan Ab Tak." He further expanded his experience in Punjab as a DOP Assistant on films including "Motor Machis Cutter" and "Thana Sadar," along with several music videos. Zohan made his acting debut as an Inspector in "CID," followed by appearances in "Class of 2020" and a second lead role in Joy Mukherjee Production’s "Mujahid." His acting credits also include "Bhagyalakshmi," "Shrimad Ramayan," the Marathi serial "Udhe Ga Ambe Udhe," the Marathi film "Pappi Tai Cha Dabba," and "Metro In Dino."
+# Zohan Siddiqi
+### 🎬 Actor | Assistant Director | Cinematographer
+Zohan Siddiqi is an Indian actor, born in the village of Dhundrai in Maharashtra’s Beed district. Now based in Mumbai, he has built a diverse career across acting, direction, and cinematography.
+---
+## 🎭 Acting Credits
+* **Movies/OTT:** *Mujahid* (Second Lead), *Metro In Dino*, *Pappi Tai Cha Dabba*.
+* **TV Shows:** *CID* (Inspector), *Bhagyalakshmi*, *Shrimad Ramayan*, *Udhe Ga Ambe Udhe*.
+* **Web Series:** *Class of 2020*.
+## 🎥 Behind the Camera
+* **Assistant Director:** *Nimki Mukhiya*, *Class of 2020*, *Bachchan Ab Tak*.
+* **Casting Department:** *Sacred Games* (Netflix).
+* **DOP Assistant:** *Motor Machis Cutter*, *Thana Sadar*, and various music videos.
+## 🔗 Professional Links
+* **Official IMDb Profile:** [Zohan Siddiqi on IMDb](https://www.imdb.com/name/nm16805310/)
