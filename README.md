@@ -1,6 +1,6 @@
 # Zohan Siddiqi
 ### 🎬 Actor | Assistant Director | Cinematographer
-Zohan Siddiqi is an Indian actor from Dhundrai, Beed. Now based in Mumbai, he has a versatile portfolio across Acting, Direction, and Cinematography.
+Zohan Siddiqi is an Indian actor from Dhundrai, Beed. Now based in Mumbai, he has a versatile portfolio across Acting, Direction, and Cinematography. To know Zohan Siddiqi's filmography please click IMDB link.
 ---
 ## 🎭 Acting Credits
 * **Movies/OTT:** *Mujahid* (Second Lead), *Metro In Dino*, *Pappi Tai Cha Dabba* (Grocery Store Owner), *Love Story 90s* (Mechanic).
